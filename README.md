@@ -1,0 +1,1 @@
+# Global_AI_Insurance_model
